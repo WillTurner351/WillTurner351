@@ -6,7 +6,7 @@
 
 💞️ Estou buscando colaborar em projetos de desenvolvimento web, ajudando empresas a melhorar sua presença online.
 
-📫 Como me encontrar: Você pode me contatar por email em seuemail@dominio.com ou visitar meu portfólio em willdev.github.io.
+📫 Como me encontrar: Você pode me contatar por email em itecdesenvolvimento@gmail.com ou visitar meu portfólio em WillTurner351.github.io.
 
 😄 Pronomes: Ele
 
